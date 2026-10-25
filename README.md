@@ -5,4 +5,4 @@ see the pdf attached
 # 👩‍💻 Team Members
 * Sahar Hawsawi [linkedin profile](https://www.linkedin.com/in/sahar-hawsawi-4133aa361)
 * Rafah Al Sharif *linked profile will be updated once i have it*
-* Layan Al-Subhi *linked profile will be updated once i have it*
+* Layan Al-Subhi [linkedin profile](https://www.linkedin.com/in/layan-alsubh)
